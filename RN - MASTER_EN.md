@@ -1,0 +1,509 @@
+Radikal Normal — Streitschrift über Ehrlichkeit, Verantwortung und Gerechtigkeit
+
+Radically Normal — a polemic on honesty, responsibility, and justice 
+
+**Chapter 1: The oasis dilemma**
+
+Dear reader,
+
+*Imagine you are the only person living in a desert oasis. A few years ago, after your parents died, your brother and sister moved away. It was too dangerous, they said. How much deeper could the well be dug before the water ran out? And then there were the wild animals…*
+
+*But you refused to leave.*
+
+*You have spent your whole life here, just as your mother did before you. And you achieved what your siblings thought was impossible: you built yourself a small but wonderful home. A cozy bed with a mattress stuffed with twigs and lamb’s wool. You have made sure you will survive here even if the next drought comes, or an epidemic. Water, pickled vegetables, salted meat — the cellar beneath your house is well stocked.*
+
+*Surviving here in the middle of the desert means hard work every single day. Today was no different. You spent hours working in the beds under the blazing sun, but it seems to be paying off. This year the lentils, rice, and dates are thriving. The young lambs are growing well too. Protecting them is not always easy — only this morning you drove off a group of lionesses with a warning shot. Thankfully, your old hunting rifle is still reliable.*
+
+*When the day’s work is done, you sit down on your veranda. You look up at the sky, slowly turning red. At last, a moment to breathe.*
+
+*But then, suddenly, you hear a baby crying. Then footsteps. You look toward the edge of the palm grove. Out of the shadows between the trees, a group of people begins to emerge. What is going on? Apart from the courier who brings and collects mail every two weeks, no one has passed through here in years. And so many people all at once… You have learned to be cautious. You cast a quick, instinctive glance over your shoulder. As always, the rifle is leaning within easy reach against the outside wall of the house.*
+
+*The group moves slowly toward your veranda. They are still perhaps forty or fifty meters away. You count… two men and two women, along with an elderly pair using walking sticks, frail and unsteady. There seem to be two children as well. And… yes, your ears did not deceive you. One of the women is carrying a baby in a sling. She rocks it gently, but the child keeps crying.*
+
+*You are certain: you have never seen these people before in your life. As they come closer — perhaps twenty paces away now — you can see how worn they look. Tattered clothes. Only one of the women is wearing shoes at all. And how gaunt they are… They must have been walking through the desert for a long time. But a journey like that is practically suicide. Why would they do such a thing? And with children and old people as well…*
+
+*As these thoughts are still running through your mind, the man in front addresses you. He speaks in broken phrases and is hard to understand, gesturing broadly with his hands as he talks.*
+
+*“Please help. Very thirsty. Children need drink now. Mother can’t stand anymore.”*
+
+*You look at the old woman. A muscular man — perhaps her son — is supporting her. From what the first man manages to explain, you are looking at two neighboring families. They fled a village that was burned and looted by bandits two days ago. Because they had to leave in the middle of the night, they had almost no food or water with them. A little girl and her grandmother did not survive the journey, he says.*
+
+*As the man speaks, you notice his eyes drifting across the green garden you have built for yourself. And you are not entirely sure, but did his gaze rest for a moment on the rifle behind you?*
+
+*You ask him to wait with the others outside the veranda while you go fetch some water. As you turn away, you wonder whether you are being careless. You go inside, into the kitchen, fill nine clay cups with cold water from your jug, place them on a tray, and carry it outside.*
+
+*The people’s eyes light up when they see you coming with the tray. The children reach for the cups first, and the adults motion for them to take a second one. When you look at the man, he gives you a tired smile and shrugs.*
+
+*It quickly becomes clear that these few cups of water will not be enough. Of course the adults need to drink too. And eat. But… what then? If their story is true, they cannot return to their village. The next oasis is a three-day journey away. Even if you gave them rations to take with them, that would almost certainly be a death sentence for the weakest among them.*
+
+*And then one thing becomes completely clear to you: if these nine people stay with you, they will not be staying for just a few days. Not even for a few weeks. It will be many months before the baby is past the most vulnerable stage. And in that time, the elderly will not grow younger or stronger. Is it even realistic to think they could ever leave?*
+
+*But if they stay, what are they supposed to live on? Yes, you laid in reserves. But you never planned for anyone but yourself to live here permanently. And even if the adults help grow vegetables and raise sheep — this little oasis, with its stubborn well, cannot support more than it already does. With your experience, you know that.*
+
+*The fact is this: if ten people are to live here for the foreseeable future instead of one, then everything that exists here will have to be divided accordingly. That means all your possessions will be shared among them. You would probably still have enough to live on — if nothing goes wrong.*
+
+*Yes, but what if something does go wrong…*
+
+*Suddenly, fear rises in you. This cannot be happening. This is not what you built this life for. This was not the plan. You do not deserve this. And then comes anger. Why do these nine people have to turn up in your oasis of all places? What have they ever done for you?*
+
+*And even if you do share everything you own with them: how sure can you be that you can trust them? That they will not turn on you and get rid of you? After all, they know one another. To them, you are just a stranger.*
+
+*Carrying the empty tray, you walk back across the veranda and into the house. Glancing over your shoulder, you see two of the children stroking a curious lamb that has wandered over to them. And as you step through the doorway, your eyes fall once more on the rifle leaning against the wall. And on the heavy wooden bolt on your door.*
+
+*You take a deep breath.*
+
+*And you know you have to make a decision.*
+
+In this short blog series, I want to explore the extreme differences between those who have and those who have not — and the question of what responsibility all of us bear for that. Because in small ways, we make decisions like this every day. Every time we buy something, vote, invest, make demands, or remain silent, we are making decisions about how resources are distributed — and, indirectly, about whether other people have access to food, education, healthcare, and safety.
+
+Two things matter to me here. First: the oasis parable doesn’t model the world economy; it models the moment of decision, when someone is standing at your door. And second: when I talk about the oasis, I don’t mean some abstract billionaires with yachts and private bunkers. I mean myself as well.
+
+Things I take for granted — food in the fridge, medical treatment when I need it, and access to an excellent education — are out of reach for most people in the world. And if we all decided that we should share, then I would have to do that too. And if you are reading these words on a comfortable sofa or at an office desk, then the same is probably true of you.
+
+This is not about assigning guilt — to you or to me. Quite the opposite. Only once we admit this can we stop treating justice as something that concerns other people. Then it becomes a conscious decision we can make anew every day.
+
+And if someone reads this and says, “I’m just selfish, and I’d rather back Musk and Bezos to protect my own share” — fine. But then at least they are telling the truth. And then we can speak honestly with one another.
+
+It is not “politics” that bears the responsibility. Not “the economy.” It is me. It is you. Every day.
+
+The growing public debate shows that more and more people want change. Researchers such as Thomas Piketty and Ingrid Robeyns have reached a broad audience with their analyses. People like Gary Stevenson are gaining increasing attention online — with simple messages and the aim of building a politically effective movement.
+
+And politically, too, this debate is no longer without consequences: in some countries, calls for stronger redistribution are already finding expression in concrete political proposals.
+
+I want to explore with you what happens when we follow the idea of justice all the way through — asking not only what would be desirable, but whether it would actually be workable. This vision may sound radical today. But my hope is that, in a few decades, it will simply sound normal.
+
+But that requires us to move beyond the endless small-scale thinking in our public debate. Because that sort of debate can only continue as long as we refuse to take a clear stance — even if it is only toward ourselves.
+
+I would love to hear your thoughts — here in the comments or in reply to this piece. In the next post, I will look at the destructive effects that extreme poverty and extreme wealth have on people and on society.
+
+. 
+
+**Chapter 2: Why is extreme inequality harmful?**
+
+In the first post of this series, we imagined ourselves in an oasis, confronted with a decision: Do we share with the newcomers or do we not?
+
+The second post is about just how stark extreme poverty and extreme wealth are today — and why that is a problem at all.
+
+Because it’s true: over the past fifty years, global economic growth has lifted more than a billion people out of poverty. So isn’t growth already the solution? There’s quite a bit to say against that.
+
+First, the bar is set extremely low: the World Bank threshold is around three dollars a day — anyone with four is statistically no longer considered extremely poor, but is very likely still living on the edge.
+
+Second, progress is agonizingly slow — even at pre-pandemic speeds, hunger would remain a problem for generations, and since the pandemic, progress has stalled completely.
+
+Third, growth in Western countries was strongest in the three post-war decades — precisely the period when wealth there was distributed more evenly than almost ever before. It is true that cheap energy prices and the reconstruction after the war played a role — but the period shows at the very least that equality and growth don’t rule each other out.
+
+And the great growth stories of more recent times — China, the East Asian tiger economies, and in part India — owe at least as much to vigorous state intervention as to open markets.
+
+On top of that, the resources of this planet are finite and cannot be reconciled with endless growth.
+
+The successes of growth are therefore no argument for extreme inequality — and growth alone will not end extreme poverty in any case.
+
+I don’t want to question here whether there should be differences in wealth, income, and consumption at all. Of course they can serve as incentives for effort and innovation — I’ll come back to that later. But however one justifies differences in wealth and income, the effects of small differences are simply not comparable to the enormous damage caused by extreme ones. Many of the statistics that follow show this only in part, and through correlations — but the overall picture is nonetheless unmistakable.
+
+First, the facts. The richest 1% of the world’s population earns about 20% of all income and owns nearly 40% of all wealth. The poorer half of humanity gets just [8% of income](https://wir2022.wid.world/), and a mere 2% of wealth. The trend: the gap is widening — within most countries and especially at the very top.
+
+A note: even though earlier centuries saw even more extreme wealth and poverty, a concentration of wealth like today’s has not existed since the Second World War. The shift toward inequality has accelerated in particular since the neoliberal reforms of the 1980s under Ronald Reagan [in the United States](https://gabriel-zucman.eu/files/SaezZucman2014.pdf) and Margaret Thatcher in Britain.
+
+### **The consequences of extreme poverty**
+
+Extreme poverty demonstrably causes people to die considerably earlier. Internationally, countries with very low per-capita income almost without exception show markedly lower [average life expectancy](https://data.who.int/countries/) than wealthy states. People in Mozambique, for instance, live on average just under 60 years — more than a quarter less than people in Japan. The difference is even starker within countries: the poorest 1% in the United States live on average more than 10 years [less than the richest](https://pmc.ncbi.nlm.nih.gov/articles/PMC4866586/).
+
+Every day, around 25,000 people worldwide [die](https://www.wfp.org/news/world-wealth-9-million-people-die-every-year-hunger-wfp-chief-tells-food-system-summit) from the consequences of hunger and malnutrition — more than eight times as many deaths as in the September 11, 2001 terrorist attacks on the World Trade Center in New York. But other health indicators also tend to be [worse](https://wilkinsonpickett.com/the-spirit-level/) in societies with high income inequality — the methodology of individual comparisons is contested, but the pattern shows up across many datasets. Child mortality, obesity, and mental illness are all more common there.
+
+Countries with high inequality have higher levels of violent crime. Latin America, with a high [Gini coefficient](https://data.worldbank.org/indicator/SI.POV.GINI), reports an average of [around 18 homicides](https://www.unodc.org/documents/data-and-analysis/gsh/2023/GSH23_ExSum.pdf) per 100,000 inhabitants each year, while Europe, with a low Gini coefficient, reports a little more than 2\.
+
+Speaking of violence: coups, protests, and civil wars also occur more frequently in [unequal](https://www.nber.org/system/files/working_papers/w4486/w4486.pdf) countries.
+
+The poorer people are, the [harder](https://pubs.aeaweb.org/doi/pdfplus/10.1257/jep.27.3.79) it becomes for them to escape that situation through social mobility. According to the [OECD](https://www.oecd.org/en/publications/broken-elevator-how-to-promote-social-mobility_9789264301085-en.html), in highly unequal countries families remain in their position for many generations: “sticky floors” prevent those at the bottom from rising, while “sticky ceilings” keep wealth locked at the top.
+
+On top of this, living at subsistence level [consumes cognitive resources](https://www.hks.harvard.edu/centers/cid/publications/books/scarcity-why-having-too-little-means-so-much) and limits people’s capacity for long-term planning. Studies suggest that poverty measurably lowers mental performance — one widely cited measurement puts it at as much as [13 IQ points](https://www.science.org/doi/10.1126/science.1238041), though the exact magnitude is still debated.
+
+Poverty, then, cements itself in place — much as wealth does, as we are about to see.
+
+### **The consequences of extreme wealth**
+
+The wealthiest 1% of the world’s population [is responsible for 16%](https://www.oxfamfrance.org/app/uploads/2023/11/Sous-embargo-20-nov_Oxfam-rapport-Climate-Equality-A-Planet-for-the-99-_version-anglaises-integrale_compressed.pdf) of global CO₂ emissions — as much as the poorest 66%. A large [part of this](https://www.nature.com/articles/s41893-022-00955-z) stems from investments in climate-damaging industries.
+
+Wealthy investors, above all, profit from precarious working conditions within global supply chains. And on a smaller scale, investors like me also profit from exploitation — through ETF savings plans and pension funds. I’m not even talking about blame here — there are simply structural incentives to act this way.
+
+Something that would scarcely be possible without an extreme concentration of wealth is the takeover of [media](https://thenewpress.org/books/rich-media-poor-democracy/?v=eb65bcceaa5f) (Silvio Berlusconi and Mediaset, Elon Musk and Twitter, Jeff Bezos and the *Washington Post*, Holger Friedrich and the *Berliner Zeitung*) and the direct and indirect [influence](https://www.cambridge.org/core/journals/perspectives-on-politics/article/abs/testing-theories-of-american-politics-elites-interest-groups-and-average-citizens/62327F513959D0A304D4893B382B992B) on politics.
+
+In this way, the extremely rich control both what a society debates and the levers of power through which a democratic change to the situation might be possible. How else can one explain the existence of tax loopholes and havens like Ireland or Luxembourg?
+
+Above all, extreme wealth itself drives the gap ever wider — and not only through control of media and politics. Because the return on capital has for decades been higher on average than economic growth, more and more capital accumulates in the hands of investors. And in order for the money not to sit idle, it gets reinvested.
+
+This creates a [bidding war](https://www.chbeck.de/piketty-kapital-21-jahrhundert/product/34716067) over assets such as stocks, Bitcoin, and the like — but also over [real estate](https://www.oecd.org/en/publications/brick-by-brick_b453b043-en.html). Everyone else is pushed out of these markets by an ever more affluent elite, and can profit less and less from the growth of capital — which could mark the beginning of a downward spiral into poverty even for large parts of the middle class.
+
+Because in the end, of course, this bidding war is not about money, but about the actual resources that money can direct within an economic system: above all housing, land, raw materials, time, and labor.
+
+For all the philanthropy of some billionaires: it is a drop in the ocean, and no substitute for structural fairness.
+
+### **Conclusion**
+
+Today’s world is marked by a gap that keeps widening:
+
+* On one side, ever more people in pronounced poverty, with all its consequences, from lack of opportunity to death.  
+* On the other, people who don’t know what to do with their money — and who lay claim to a disproportionate share of resources and power.
+
+If we cannot agree on much else, dear readers, then let us at least hope to agree on this: that this is not all we are capable of as humanity. However one sees it — there is no excuse. Every single one of us bears responsibility — for how things are, and above all, for how they will be.
+
+But which way could that change go? What might the world look like then? Before we get to what I think, we can be sure of one thing: we are not the first to think about how we should deal with inequality in human societies. Far from it.
+
+So in the next post, let us take a look back at the history of thinking about inequality.
+
+**Chapter 3: A short history of thinking about inequality**
+
+The question of inequality – where it comes from, and to what degree it can be justified – is one of the oldest questions in philosophy. Even in antiquity, people wondered how much the possessions of citizens could be allowed to differ without endangering the foundations of communal life. The selection that follows is just that, a selection, but I hope it conveys how the debate about inequality has evolved.
+
+## **From Plato to Marx**
+
+According to [Plato](https://classics.mit.edu/Plato/laws.5.v.html) (c. 427–347 BC), it would be appropriate for human societies if the richest owned no more than four times as much as the poorest. His goal was an orderly coexistence that avoids extreme differences. [Aristotle](https://plato.stanford.edu/entries/aristotle-politics/) (384–322 BC) held more generally that wealth is best distributed across a large middle class. Poor and rich classes were to be avoided, because they would breed characters and social forces that make for instability.
+
+After the subject had received little attention from major thinkers for many centuries, [Jean-Jacques Rousseau](https://en.wikisource.org/wiki/Discourse_on_the_Origin_of_Inequality_Among_Men/Part_II) (1712–1778) turned to the origins of inequality in the eighteenth century and concluded that they coincided with the invention of property. The first man to fence in a piece of land and declare “this is mine,” he argued, ushered in social division. From then on, people no longer stood on the same footing; a lasting divide emerged, bringing dependence and oppression in its wake.
+
+[William Godwin](https://plato.stanford.edu/entries/godwin/) (1756–1836), father of Frankenstein author Mary Shelley, likewise saw inequality as a moral problem. It corrupts people at both ends of the wealth spectrum, he said: the rich, because possession and power deform them, and the poor, because they are humiliated and disenfranchised. Still, he trusted that people would rationally conclude, without state interference, that they should share with one another. Rather than relying on institutions, they could overcome inequality through moral action.
+
+[John Stuart Mill](https://en.wikisource.org/wiki/Principles_of_Political_Economy_\(J.S._Mill,_1871\),_vol._1/Book_II,_Chapter_I) (1806–1873) embodies the shift in emphasis from moral questions to practical rules. In the mid-nineteenth century, he drew a clear line between production and distribution. While production, in his view, followed natural laws and technological development, the distribution of what is produced lay within society’s discretion. Mill thus stressed that inequality must not be understood as an inevitable consequence of the economy: how goods are distributed is always a political decision.
+
+[Karl Marx](https://www.marxists.org/archive/marx/works/1848/communist-manifesto/ch02.htm) (1818–1883) and Friedrich Engels (1820–1895) radicalized this view. For them, inequality was an inescapable consequence of private ownership of the means of production and the resulting exploitation of labor. Their answer was the complete abolition of such ownership. Only when factories, machines, and land were no longer in private hands could the division into classes be overcome.
+
+## **Thinkers since the Second World War**
+
+Toward the middle of the twentieth century, [Karl Polanyi](https://en.wikipedia.org/wiki/The_Great_Transformation_\(book\)) (1886–1964) argued that a market economy left entirely to its own devices would destroy society. Treating labor, land, and money like ordinary commodities was, he held, impossible in the long run. Societies therefore respond with countermovements such as regulation and social policy, re-embedding the market so that it works in line with people’s interests.
+
+[John Rawls](https://plato.stanford.edu/entries/rawls/) (1921–2002) later proposed a thought experiment that remains among the most influential approaches in the theory of justice. Inequality, he argued, can be justified only if it benefits the worst-off. Moreover, societies should always be organized in such a way that those who design them could accept ending up worst-off themselves. They would make such decisions behind a “veil of ignorance.”
+
+[Amartya Sen](https://plato.stanford.edu/entries/capability-approach/) (b. 1933\) broadened the view of inequality beyond the financial to the perspective of capabilities. Income alone is not enough if there is no access to health, education, or political participation. For him, inequality is measured by the real opportunities people have to shape their lives according to their own ideas.
+
+[Thomas Piketty](https://www.hup.harvard.edu/books/9780674430006) (b. 1971), looking at historical data, found that inequality grows when returns on capital outpace the economy as a whole over long periods. In such phases, the gap between owners and non-owners widens. His proposal – a global wealth tax and more progressive income taxes – was meant to counteract this mechanism.
+
+[Branko Milanovic](https://www.hup.harvard.edu/books/9780674984035) (b. 1953\) widened the lens to global inequality. He showed that while differences between countries are shrinking, the divide within many societies is deepening. Seen globally, a new middle class has emerged, above all in Asia, while the old middle class in Western industrialized countries stagnates or falls behind.
+
+The journalist [Ulrike Herrmann](https://scribepublications.com/books/the-end-of-capitalism) (b. 1964\) brought the ecological limits of growth into the debate. She argued that capitalism cannot function without growth, and that a planned, rationed post-growth society is therefore necessary – one that respects the planet’s limited resources. Growth on a finite planet cannot continue indefinitely, and any debate about inequality must take this fact into account.
+
+Most recently, the philosopher [Ingrid Robeyns](https://www.penguinrandomhouse.com/books/734828/limitarianism-by-ingrid-robeyns/) (b. 1972\) revived the idea of an upper limit on wealth with her book *Limitarianism*. In doing so, she ties back directly to Plato after more than two millennia and shows that the question of capping wealth has lost none of its relevance. And there are many more important thinkers whom I cannot name in this short overview.
+
+## **A debate without a vision**
+
+From antiquity to the present, thinking about inequality has grown steadily more nuanced. Some thinkers saw upper limits on wealth, others a just distribution, still others the need to tame markets or to look at capabilities rather than income. What they share is the insight that differences that grow too large have destructive consequences – for individuals and for society as a whole.
+
+In today’s public debate, the question of inequality does come up again and again. But the view of what would be desirable – and what we could shape in principle – remains largely in the background, despite important contributions such as Robeyns’s.
+
+If we set aside populist scapegoating of migrants or the “lazy unemployed,” what dominates the media and social networks is a fatalism that considers change unrealistic, a focus on individual advancement, and, at best, technocratic fixes.
+
+Let me put it bluntly: it is part of everyday politics today to argue over whether people deserve a basic livelihood if they fail to deliver what “society” expects of them. A debate about clear limits to wealth, by contrast, is practically taboo on the big channels and in the major newspapers.
+
+To bring this taboo into focus, I want to put forward a goal that is simple at its core – and memorable enough that many people can wield it in the debate about justice: the 10x principle.
+
+**Chapter 4: The 10 principle**
+
+In the previous installments, I have tried to establish three things:
+
+• We all bear daily responsibility for inequality in the world.
+
+• Extreme inequality leads to ever more suffering and destruction.
+
+• The problem of inequality has occupied humanity for thousands of years.
+
+So we know that inequality exists and that it brings problems. If we take our responsibility seriously, then we must also ask whether things couldn’t be better.
+
+To that end, I ask you to look inward. Think about what you observe in everyday life. The financial needs of the people you have in mind. The work they do.
+
+And then ask yourself: What is appropriate? What is inappropriate? Does it not matter at all?
+
+If that seems like an odd thing to ask, remember that human societies agree on what is appropriate or inappropriate in many areas: traffic rules, age limits for drinking alcohol, the voting age. Why shouldn’t the same apply to the amount of money a person may have?
+
+Today, the average board member of a company in Germany’s leading DAX index earns [around 40 times](https://www.dsw-info.de/presse/pressekonferenzen-2025/dsw-vorstandsverguetungsstudie-2025/) as much as an average employee costs the company – at top payers like Adidas, as much as 95 times. At the largest U.S. firms, it is [nearly 300 times](https://www.epi.org/publication/ceo-pay/) as much. Even more absurd are the disparities in wealth, especially when you look across national borders: a billionaire holds many tens of thousands of times as much wealth as a subsistence farmer.
+
+In my view, performance should be rewarded. But there is a point at which the amount of money stops actually enriching life. Beyond a certain point, wealth – when it comes to one’s own well-being – exists only in your head. It is purely symbolic. And if at that point it still serves a purpose, one has to ask whether a fairer society couldn’t serve that purpose better – or whether the purpose has a destructive effect on society.
+
+Let’s try to approach an appropriate ratio of rich to poor. Imagine you are the most hardworking genius on Earth, with responsibility for the whole world – would it be appropriate for you to eat food that is a hundred times as expensive, or to live in a home a hundred times as large and lavish as another person’s?
+
+Does that still seem too extreme to you? How about the [ratio of 4 to 1](https://classics.mit.edu/Plato/laws.5.v.html) proposed by Plato? Too restrictive?
+
+There is no right or wrong here. And unfortunately, no one can say what would be objectively optimal. But if the debates and measures around social justice are to be purposeful, we need a common yardstick. How else are we to calibrate reforms, classify demands, or test claims?
+
+To this end, I propose a yardstick of 10 to 1\. The richest person receives ten times as much as the poorest person. That is the kind of ratio that the writer [Sam Pizzigati](https://inequality.org/great-divide/debate-maximum-wage/) (10:1) and a 2013 [Swiss ballot initiative](https://www.srf.ch/news/schweiz/1-12-initiative-volksinitiative-1-12-fuer-gerechte-loehne-worum-geht-es) (12:1) put forward for maximum wage gaps. But a ratio like this would apply not only to income, but to wealth as well. And it would not just apply in Germany or the U.S., but worldwide.
+
+Yes, the figure is arbitrary, but my aim here is to illustrate the difference such a yardstick would make. For the remainder of this series, we assume this ratio of 10 to 1 and look at what such a world would look like, why it could actually work, and how we might build it together.
+
+Let me first clarify what the 10x principle covers: wealth, income, and consumption potential. For if wealth is to be capped at a factor of 10 over the long term, then the growth of wealth – that is, income – must also be capped at that factor.
+
+Consumption potential is not a third quantity anyone would need to monitor — it follows from capped income and wealth on its own. What makes it important is its role as a yardstick: because basic goods cost different amounts in different places, a basket of goods would have to be defined that is equally affordable everywhere for those who have the least.
+
+This basket also answers the question of who ‘the poorest person’ actually is: not an individual, but a guarantee. Everyone can afford this basket – always; if prices rise, the guarantee rises with them. The ceiling sits at ten times this guarantee. From this follows the system’s dynamic: if many people crowd against the ceiling, the basket is expanded. The floor rises, the ceiling rises with it, and more is skimmed off at the top so that the larger claims at the bottom are covered in real terms.
+
+The concept of a basket of goods, incidentally, gives us an important hint: money is, as Sen already noted, merely a measure of how well you can eat, where you can afford to live, whether you can see a doctor and send your children to school.
+
+Using a ratio rather than a fixed ceiling does two useful things: the richest can still grow richer, but only if the poorest grow richer too. And it allows more flexibility in accounting for global differences in purchasing power.
+
+If wealth and income were adjusted overnight to a maximum ratio of 10 to 1, what would the world look like?
+
+**Calculation:**
+
+We begin with the global totals: world gross domestic product (GDP) in 2024 was about [109 trillion US dollars](https://www.imf.org/external/datamapper/NGDPD@WEO/WEOWORLD). Total net household wealth worldwide stood at roughly [475 trillion US dollars](https://www.ubs.com/global/en/media/display-page-ndp/en-20250618-gwr-2025.html) at the end of 2024\.
+
+By “wealth” we mean all financial and non-financial assets – bank deposits, stocks, bonds, real estate, land, machinery, natural resources, and so on – minus all liabilities.
+
+Dividing these totals by the number of adults worldwide (5.5 billion) yields an average income of about 19,800 US dollars per year and an average wealth of around 86,400 US dollars per adult. This is, incidentally, a generous calculation, since GDP does not translate fully into household income but also flows into government consumption, retained corporate profits, and depreciation.
+
+Think of it as a compressed version of today’s distribution: total income and wealth remain the same, but individual amounts per person are simply much closer together. Because we are redistributing the existing total, the global average stays exactly where it is today.
+
+Applying the 10x principle, what would life look like in practice at various points on this scale? Simplified as follows (in today’s purchasing power and purely illustrative):
+
+• **Tier 1 – Base (bottom end):** With about 9,900 US dollars in income and 43,200 US dollars in wealth, every person would have enough for healthy food, housing, energy, transport, and basic education. Hunger, extreme poverty, and precarious living conditions would disappear.
+
+• **Tier 2 – Average (global mean):** With about 19,800 US dollars in income and 86,400 US dollars in wealth, this person would sit exactly at the global average and thus be part of the middle class: a car of their own or public transit, modest travel, high-quality medical care, access to higher education for the children, reserves for hard times.
+
+• **Tier 3 – Top (upper end):** With about 99,000 US dollars in income and 432,000 US dollars in wealth, prosperity would be comfortable but not excessive: a spacious house or apartment, two cars, international travel, high-quality consumer goods, freedom from money worries – but no private jets, no yachts, no media empires of one’s own. And all of it within the limits of what our planet can bear, even as the people at the bottom consume more.
+
+These figures are an illustration in today’s purchasing power, not a balance-sheet forecast – market valuations would shift massively in a 10x world. What matters are the ratios, and the real claims to housing, goods, and time that they represent.
+
+Note: this spectrum would include everyone, even people in the world’s poorest countries. To make it concrete: today the poorest have a few thousand US dollars in wealth, while the holdings of the richest people are valued well beyond 100 billion US dollars.
+
+[Check out where you stand in all this →](https://rechner.radikalnormal.de/?lang=en)
+
+You can see how wide the gap is today by looking at median wealth – the amount held by the person exactly in the middle of the world’s population. That figure stands today at about [9,000 US dollars](https://www.ubs.com/global/en/media/display-page-ndp/en-20250618-gwr-2025.html), roughly one-tenth of the average of 86,400 US dollars. If the wealth that already exists in humanity’s hands were redistributed within a 10x range, the bottom end of the distribution would have many times more than today – around three billion people would no longer be poor.
+
+Of course, the world’s wealth is not a treasure chest one could simply gather up and hand out. Substantial parts of it are market values based on expectations of future returns. These would fall if one limited the possible returns. But that does not mean the underlying real resources – labor, housing, machinery, raw materials – would vanish at the same time. This point is extremely important: Ultimately, in this model, it is the claims on these resources that are redistributed – the nominal monetary amount is irrelevant.
+
+If we woke up tomorrow in such a 10x world, what would we have lost? Private islands, private jets, private armies, the pressure to imitate the lifestyles of the extremely wealthy, bought elections and TV channels, and the sense of permanent inferiority that accompanies so many today.
+
+And what would we have gained? Universal dignity, sufficient food for all, affordable education, everyday security, basic medical care, and the freedom not to live in constant fear of ruin. The further consequences can only be guessed at. Status matters to people, and always will. And status can be expressed in many ways. But the smaller the resource differences, the less likely it is that society drifts apart in a harmful way – such as one group being able to genetically optimize their children while the other cannot.
+
+I think that, compared with today’s world, this scenario would be a great gain. Financially perhaps not for everyone – not for me either. But for the great majority of people, and for the odd reader too. Admittedly, we are very far from a 10x world today – and in fact we move a little further from it every day.
+
+It sounds so hackneyed that I can hardly bear to repeat it, but many things once thought impossible have, thanks to people’s commitment, become reality in the past. The eight-hour day, the ban on child labor, statutory health insurance, for example.
+
+Whether a ratio of 10 to 1 is exactly the right target is something we can happily argue about. What I want to show is that societies can discuss such equality targets at all.
+
+In the coming chapter, I want to address what is probably the most common criticism of all this – the one that arises whenever someone proposes supposed leveling: the loss of entrepreneurship and innovation.
+
+**Chapter 5: What drives us in a 10x world?**
+
+As lovely and comfortable as the idea of a fairer world may sound to some, many questions remain. The most important one, in my view: what does it do to the incentives that drive people to do things, or not to do them? Because without a doubt, it’s the sum of individual effort that drives our species forward.
+
+So the concern is legitimate that a 10x world might destroy the incentives of those who contribute the most to that progress. The people typically named here are entrepreneurs, who take on personal risk to bring about innovation and extraordinary gains in performance.
+
+But let me counter right away: the claim that extraordinary financial incentives automatically produce extraordinary innovation and productivity is by no means as clear-cut as it is often portrayed. [Studies](https://www.hup.harvard.edu/books/9780674022287) suggest that differences in the pay of CEOs are only weakly explained by improvements in company performance – high executive pay mostly just reflects a strong bargaining position.
+
+In public debate, reward and incentive are often treated as the variable factors, while risk is treated as a kind of constant.
+
+But that isn’t true: risk differs from person to person. People feel losses [twice as strongly](https://www.jstor.org/stable/1914185) as gains of the same size. So when risk falls, the willingness to step into the unknown rises – even when the reward turns out smaller.
+
+This discrepancy also shows up in the end result. In the U.S., the [ratio](https://www.epi.org/publication/ceo-pay/) of CEO pay to average worker pay has risen from 31:1 in 1978 to 281:1 in 2024\. Over that period, CEO pay rose by more than 1,000% and productivity by 80% – but worker pay rose by just 26%. The question is fair: when compensation at the very top has multiplied, productivity couldn’t keep pace, and workers’ wages least of all – what exactly are we rewarding?
+
+But for many people, founding or investing means high risk. Someone living at subsistence level literally puts their existence on the line with a venture. Successful founders like Elon Musk or Jeff Bezos had a safety net and would have led comfortable lives even if their first projects had genuinely failed. The myth of the entrepreneur who risks everything is therefore often overblown. I know this from my own experience too: taking professional risks has always come fairly easily to me, because my family background gives me relative material security.
+
+Shouldn’t we promote innovation less by lavishly rewarding the risk-taking of a few, and more by lowering that risk for the many? If the worst that can happen to you when you fail is a life at an acceptable standard of living, wouldn’t you be more willing to take a risk? That is exactly what a 10x distribution would make possible.
+
+Reality shows we’d be right to focus less on a handful of star performers. Many groundbreaking innovations of recent decades – microchips, the internet, GPS, mRNA vaccines – were made possible by state funding, for which the economist Mariana Mazzucato coined the term the [entrepreneurial state](https://marianamazzucato.com/books/the-entrepreneurial-state/). Organizations like DARPA or the NIH invest deliberately in projects with uncertain outcomes, because spreading the bets widely eventually produces the big breakthroughs. How many entrepreneurs could celebrate their successes only because the taxpayer had laid the groundwork first?
+
+But state funding is not the only example. Crowdfunding, too, has long shown that many small contributions can enable great innovation – whether in the video-game industry or among hardware startups. Why shouldn’t this principle carry over to the venture-capital space as well? If more people had financial leeway, they could take small risks and provide capital together. Fund managers would still differentiate themselves through performance, but the risk would be spread across many shoulders.
+
+I have respect for the changes a new incentive system brings. But there are several stabilizing factors suggesting that people would remain productive and innovative even in a 10x world:
+
+1\. **Relative differences remain** – people compare themselves relatively rather than absolutely. The urge to compare yourself with unreachable billionaires would fall away, but differentiation within the 10x society [would remain possible](https://www.sciencedirect.com/science/article/abs/pii/0047272795015647). Studies also show that the additional gain in quality of life [shrinks with every additional euro](https://www.pnas.org/doi/10.1073/pnas.1011492107) – even if it remains contested whether there is an absolute satiation level.
+
+2\. **Intrinsic motivation** – many people are driven by self-efficacy, meaning, and the desire to learn something. Millions volunteer, invest time and money in clubs and associations, or keep working even after a lottery win. Artificial intelligence could reinforce this trend further by taking over monotonous tasks and focusing people on creative or social work.
+
+3\. **Alternative reward systems** – recognition, prestige, or playful elements (“gamification”) already motivate people today. Open-source communities like Linux and Wikipedia, and science itself, show that honor, recognition, and the feeling of winning a game can drive people – often more strongly than money. In a society where basic needs are secured, these intangible factors should matter more.
+
+Now I’ve written a lot about how people might be motivated to peak performance. But what about those who may never want to, or be able to, deliver peak performance? Won’t these people grow lazy once they’re no longer threatened with starvation?
+
+The experiments with unconditional basic income so far are encouraging – even if they still need more research over longer time horizons. The findings suggest that [working hours barely decrease, while mental health improves](https://stm.fi/en/-/perustulokokeilun-tulokset-tyollisyysvaikutukset-vahaisia-toimeentulo-ja-psyykkinen-terveys-koettiin-paremmaksi). And those who work a little less often use the freed-up time for further education or to start a business or other projects. It is not basic income that destroys motivation, but fear. Security gives people the freedom to dare.
+
+In sum, I am optimistic that a 10x society would not stifle innovation but, at best, multiply it. Through lower risk, a stronger focus on intrinsic motivation and alternative reward systems, and a basic income for all, a robust new innovation ecosystem could emerge – one that rests on the shoulders of many rather than on a billionaire lottery.
+
+In the next chapter, we will explore how we might move toward such a utopia. The good news: there are plenty of approaches — some already tried, some only proposed.
+
+**Chapter 6: How do we get to a fairer world?**
+
+*“That all sounds nice — but how could it ever actually work?”*
+
+The short answer: The tools have existed for a long time, but the will is not there yet.
+
+The 10x world is an admittedly utopian goal, whose purpose is to give us moral and practical orientation. Given the prevailing balance of power in the world, it cannot be enforced directly.
+
+By definition, a 10x world becomes impossible if some countries refuse to take part. That is exactly why it matters so much that we see ourselves as individually responsible people who decide together how we want to arrange the balance of power among us.
+
+The most important building block on the way to a more equal society is a progressive tax system — meaning that higher wealth and higher incomes are taxed at higher rates. Such a system leans on taxes that, by their very nature, fall mainly on wealthier people, and avoids taxes that hit the everyday spending of most people.
+
+Because wealth inequality is far greater than income inequality, such a system should tax wealth above all, and burden income from work less.
+
+The floor needs a safeguard of its own — most obviously a basic income that guarantees the basic basket of goods for everyone. It is the counterpart to the ceiling: without a secured baseline, any range above that would be mere rhetoric.
+
+There is a widespread assumption I want to push back on here: the point is not to tax extremely rich people in order to fund government spending. A state with its own currency can, in principle, pay for anything it decides to (that is the view of a growing school of economic thought that I find very convincing).
+
+For the eurozone, this holds so far only to a limited extent — not out of economic necessity, but because of self-imposed shackles: the direct line between the central bank and fiscal policy has been cut by treaty, and a common fiscal policy is missing. The United States shows how it can be done differently: in that country, the currency sits with the federal government — and with it the fiscal firepower that the individual states lack.
+
+Taxation serves more to pull money out of the economy where it would otherwise be inflationary, to curb harmful behaviour by economic actors, and — not least — to counteract an uncontrolled accumulation of wealth-based power.
+
+This is not a contradiction of the calculation from Chapter 4, but its flip side: we are not redistributing sums of money, but claims on real resources such as labour, raw materials, and housing. A wealth tax reduces those claims. That also takes the pressure out of the bidding war over scarce goods. In this way we create room to raise the claims at the bottom of the distribution without driving prices up.
+
+## **Wealth and inheritance**
+
+The goal of taxing wealth and inheritance would be to narrow the gaps in wealth, with an end goal of 10x. The main instrument would be a wealth tax that applies to very high net worth. The threshold would follow the 10x principle and take the respective purchasing power into account.
+
+For context: [Gabriel Zucman](https://gabriel-zucman.eu/files/report-g20.pdf) considers a levy of 2–3% per year on very large fortunes internationally enforceable — as a brake on concentration. Piketty goes further, up to rates that would actually melt large fortunes down. Above the 10x threshold, the levies would have to exceed the return on capital, so that fortunes shrink steadily over the years and across inheritances. That is not a side effect; it is the point.
+
+At the same time, the build-up of wealth within dynasties would be made harder through more consistent taxation of inheritance — including for me, should I one day inherit from my parents. Loopholes via foundations would be closed off, and exemptions sharply limited. We often hear the argument that family-run businesses need exemptions so they are not crushed by the burden of the tax bill. Such exemptions can exist — but they have to be narrowly defined and tied to clear conditions, so that those who do not need them do not benefit.
+
+One complication is that the size of a fortune can be hard to pin down, depending on the type of asset. For real estate and stock holdings it would be easiest. Shares in companies not listed on the stock exchange could be valued through standardised processes, with the publication of key business figures made mandatory. Above all, with illiquid and unique goods such as works of art, legal disputes are likely — and for that we would need rules and institutions for fair and efficient resolution.
+
+And where ongoing valuation remains too costly, there is a natural valuation event: inheritance — wealth changes hands there anyway and has to be priced, which is why inheritance taxation is the strongest channel, from an administrative point of view, for melting fortunes down.
+
+A further difficulty is identifying the actual owners of companies. For this there would need to be publicly accessible ownership registers, or at least ones that tax authorities can see. The [Open Ownership](http://openownership.org/) initiative could point the way here. Moving one’s residence to another country is also a popular way to escape taxation at home.
+
+A side effect of consistent international taxation of wealth and inheritance would probably be a deflation in the prices of financial assets, which would bring 10x closer directly. The reasons would be a greater need for liquidity and a reduced appeal of unproductive assets such as gold and Bitcoin.
+
+At this point one might object: what happens to the savings of ordinary people who have invested in such assets? The truth is that those prices would likely fall sharply. These assets only reached their current high value in the first place because they are parking spots for surplus capital — parking spots that yield all the more, the more people let themselves be tempted into them.
+
+In a 10x world they would lose much of their appeal. But that does not mean that someone who put all their money into Bitcoin would have to fear for their survival. Because in a 10x world, your security no longer hangs on your portfolio: enough housing, healthcare, and general provision would be guaranteed regardless of what anyone had bet on. What is at stake then is only rank, not existence.
+
+So who owns large companies, then? No one alone — they would be in dispersed ownership: millions of people holding small stakes, directly, through funds, or through employee ownership. That this can work is something cooperatives and foundation-owned companies like Bosch already show today. Foundations as a tax shelter are one thing; foundations that permanently own capital in place of a private person are another. How control over dispersed capital gets organized democratically is an open design question. The problem can be solved, as you can observe in corporations which already lack a majority shareholder today.
+
+Wealth taxes, by the way, would not be revolutionary at all: in the decades after the Second World War they were common in many industrialised countries. France, Germany, and Switzerland levied annual wealth taxes for a time (Switzerland still does), and the United States charged [top rates](http://taxpolicycenter.org/) of up to 77% on large inheritances.
+
+But let’s be honest: numerous countries, including Sweden, France, and Germany, later [rolled back or scaled down](https://www.oecd.org/en/publications/the-role-and-design-of-net-wealth-taxes-in-the-oecd_9789264290303-en.html) their existing wealth taxes. The reasons given were the difficulty of valuing wealth, capital flight, and ultimately also often disappointing revenues.
+
+But these weaknesses lie in the design of the respective taxes, not in the idea itself. The fact that Switzerland has levied wealth taxes smoothly for decades proves at least that collection and valuation are workable. And Norway shows the dynamic of capital flight and countermeasures: after a slight increase in the wealth tax, some millionaires moved to Switzerland — however, there are [indications](https://www.youtube.com/watch?v=kJttqFCWtQM) that the actual reason was that a significant tightening of the exit tax was imminent. That very sequence is the argument for coordination over going it alone.
+
+I have sketched a few instruments here: standardised valuation and reporting requirements against the valuation problem; automatic exchange of information and exit taxes against capital flight; international coalitions against the race to the bottom on taxes.
+
+## **Income tax**
+
+The simplest instrument is sitting right outside the door: capital income must be taxed at least as progressively as income from work. Today the opposite holds. In Germany, someone living off dividends and capital gains pays a flat rate of just over 26 percent under the so-called Abgeltungsteuer, while someone earning the same amount through work pays up to 47.5 percent. Germany is no outlier in this.
+
+A tax system could hardly state more plainly whose income it protects. Yet the logic of the 10x principle is unambiguous: growth in wealth is income — so it belongs in the same tax category, not in a discounted category of its own. It also takes work off the wealth tax’s hands: a progressive tax on capital income lowers the net return, and with it the hurdle a wealth tax has to clear in order to melt fortunes down. And the old main argument for the discount — the fear of capital flight — has become less on an issue since the automatic exchange of information began. There are no valuation questions here, no constitutional problems. Of all the tools in this chapter, this is the one closest to hand.
+
+Alongside a generally much more progressive income tax that finally includes capital income, the adequate taxation of corporate profits is the biggest lever for working towards a 10x income goal. Today the effective tax burden of international corporations, especially those in the digital sector, is many times lower than that of an average employee. This is mainly because companies can pay tax on their profit in a place with low corporate taxes, regardless of where that profit was generated.
+
+Typically, companies report at most their revenues, but not their profits, in the various markets. Yet it is precisely this profitability per market that is a decisive criterion for these firms in deciding where to invest. This is exactly where a local taxation of profits would have to start, along the lines of: if you make a profit with our citizens, then you pay your taxes here.
+
+One approach to this is so-called formulary apportionment: a corporation’s global profit would be distributed, according to a uniform key — such as revenue, number of employees, or share of capital — across the countries in which it operates. This does not mean that revenue is equated with profit, but rather that known quantities like revenue and employment serve as proxies to allocate a fair share of the global profit. This would prevent companies from artificially shifting profits into low-tax countries. It would ensure that, for incomes too, the 10x goal is not hollowed out by tax tricks.
+
+## **Exchange of information**
+
+Before any taxation can happen, governments need to have the relevant information. The company-ownership registers already mentioned would have to be expanded in order to identify “beneficial owners.” Tax authorities must be able to exchange relevant information automatically. With the [Common Reporting Standard (CRS)](http://oecd.org/tax/automatic-exchange), the OECD has already created a framework in which this would be possible, as have the United States with [FATCA](http://irs.gov/). Digitising tax administrations and introducing standardised valuation rules for wealth are essential for this. In general, strong and adequately funded institutions are needed.
+
+Do these rules sound draconian? I think it is like all the rules we collectively impose on ourselves as a society. As long as there is the social will for it and human dignity is not undermined, such restrictions on personal or entrepreneurial freedom are fundamentally possible.
+
+To be clear: a 10x end state does not fit within today’s legal framework — neither the property guarantee of Germany’s Basic Law nor EU law on the free movement of capital. Whoever pursues such a goal must want legal change; that is no scandal, but the normal course of democratic history. The first steps, by contrast — equal taxation of capital and work, a measured wealth tax, tighter inheritance rules, EU-coordinated exit taxation — are possible within the current framework.
+
+## **Enforcement**
+
+But all these measures remain symbolic if they cannot be enforced. That is why there must be effective means of sanction for those who evade taxation. And these sanctions have to be painful enough that trying becomes too risky.
+
+The greatest risk, as described above, is that some countries will not want to take part. That has so far been the essential hurdle in implementing worldwide corporate taxes under [OECD Pillar Two](http://oecd.org/tax/beps/pillar-two) (the global minimum tax).
+
+The most important factor for changing a state’s non-participation would be its own population, recognising its responsibility and taking it seriously. Should that alone not be enough — most likely in non-democratic countries — pressure would have to be built from outside. To that end, the countries that commit to a 10x goal could set up tariffs and other trade barriers, and even impose sanctions on the decision-makers in those countries. The mere threat could be enough to bring about a change of course.
+
+Companies that evade taxation could be put under pressure by being denied access to the infrastructure in the markets where they are liable for tax. That could include access to government contracts and public infrastructure — to ports and airports, and where appropriate to digital infrastructure as well.
+
+Besides classic sanctions, states can also create pressure via the financial markets: funds that want to be marketed in a country could be required to disclose or wind down their holdings in non-cooperative tax havens or companies. The state cannot prescribe everything directly — but transparency requirements and disclosure increase the pressure from investors and the public.
+
+And individuals who move their residence to a still-existing tax haven could be hit with an exit tax, as the United States already does today.
+
+Honestly, convincing individual states is the hardest part of the undertaking. Sanctions hurt both sides, larger economies can resist more easily, and the attempt to introduce a global minimum tax shows just how stubborn the resistance is.
+
+## **Sequence**
+
+• Phase 0: Establish measurement and transparency — define the basket of goods and purchasing-power-parity (PPP) benchmarks, registers of beneficial owners, automatic exchange of information (CRS), public country-by-country reporting by corporations, digitised tax administrations.
+
+• Phase 1: What can be done nationally right away — move capital income into the progressive income tax schedule, a national wealth tax and tighter inheritance rules, basic-income pilot programmes to secure the basic basket of goods, EU-coordinated exit taxation; enforce the minimum tax under OECD Pillar Two.
+
+• Phase 2: Build coalitions — agree on local taxation of corporate profits along formulary-apportionment lines; tie infrastructure access and fund authorisation to compliance; standardise valuation and dispute procedures.
+
+• Phase 3: Global harmonisation — gradual tightening towards 10x, raising floor and ceiling together, ongoing calibration with PPP data and progress indicators; tariffs and sanctions against blocking states as a last resort.
+
+The measures I have sketched here are not a blueprint. They are neither the last word in wisdom nor would they be easy to implement. But they show that it is, in principle, possible to shift inequality towards a 10x world. Whether that succeeds depends less on the technical details of the measures than on the willingness of all of us to take responsibility and to demand these rules. But such political will has to be built over years.
+
+I can already hear the objections: “That’s naïve, it’ll never happen.” But here we should distinguish whether we are disputing that something is possible, or disputing that it is wanted. A 10x world is fundamentally feasible — no economic law rules it out. This is clearly about will.
+
+That will, admittedly, is unevenly distributed on this question. The greater part of humanity would be on the winning side. The strongest incentive to be against it lies with those who would lose by far the largest part of their wealth — but who also have the greatest levers to prevent a 10x world. What matters most, in my view, is the will of people like me. The ones who, in case of doubt, make themselves comfortable. Here we find the people whose will, on this question, really counts.
+
+I can’t guarantee anything. But “impossible” is the wrong word. What a broad majority of people genuinely want over time, they have, in the end, mostly gotten.
+
+Justice is by no means a political dead end: in [Hungary](https://www.bruegel.org/first-glance/hungarys-new-beginning-under-tight-fiscal-constraints), the newly elected government is planning an annual wealth tax on very large fortunes, and in [California](https://en.wikipedia.org/wiki/2026_California_billionaire_tax_initiative) a billionaire tax qualified in 2026 for a statewide ballot vote. And a growing number of very rich people are now calling on governments [to tax them more heavily](https://www.oxfam.org/en/press-releases/nearly-80-percent-millionaires-think-super-rich-buy-political-influence) — not by donation, but by law.
+
+Momentum is possible.
+
+**Chapter 7: Conclusion**
+
+*Do you remember the people outside your veranda, waiting for you to bring them more water? Your gun, your heavy door bolt? You are still there, and it is still your move.*
+
+I’ve written a lot about details now. The tools are basically there; calibrating them is a job for experts. There is also more than one path to the goal of a fairer world. If we do not agree cooperatively on a path, the pressure in the system will continue to build. And history shows that extreme inequality always discharges in the end, and rarely in a peaceful way. I would like to spare us that.
+
+What I care about at the core is that we are honest with ourselves. Because that is the precondition for everything else. A lack of honesty towards ourselves is the reason we stay stuck in a felt hopelessness, the reason we dodge our responsibility.
+
+But just as in our desert scenario, we have to acknowledge our responsibility and decide. And on this fundamental question there really is only black and white. Do you share, or do you shut the door? There are no excuses like “that’s too complicated.” Because that would be dishonest in the face of 25,000 people dying of hunger every day. Once we agree on that, we can happily argue about the methods and nuances.
+
+If you don’t want a fairer world, then that is your decision — and your responsibility.
+
+And by that I mean all inequality, all over the world. There is no hiding behind national borders. Justice only for your own group is not justice. For me, this is about responsibility, not about migration policy. It's about whose life counts, not which border controls come down and when.
+
+And once you have decided to stand up for more equality, you need a guiding star. A point of orientation that reduces the criteria for a better world to the essentials. One that keeps us from sinking into petty skirmishes and trying to refute, point by point, the arguments of those who don’t want to share. All of that drains the energy we need to do what’s right. Gary Stevenson understood this, proclaiming very simple principles (“tax wealth, not work”).
+
+Whether the goal is called 10x or something else is secondary. Just as the exact choice and calibration of measures is secondary. But with a guiding vision we widen the frame of what can be discussed in our society. And that is urgently needed, because today this frame is set too narrowly. And it is set by the very people who would slam the door of the oasis house without batting an eye.
+
+But even a frame is worth little if we feel that we ourselves cannot change anything. If, despite us wanting it, we do not see a mass movement overnight forcing governments around the world to change course.
+
+It is not easy to share our oasis. But it is a choice we can make. And no one forces us to make the same choice today that we made yesterday.
+
+That is what I mean by “radically normal.” Today it seems radical to say that no one needs a hundred times more to live on than someone else. Just as the abolition of slavery or women’s right to vote once seemed radical. That they seem normal today was only possible because people fought for radical change.
+
+That is why it matters that we know we can already take small steps now, that we don’t have to wait until better, easier times come.
+
+What are examples of such steps?
+
+Every one of us can talk with our friends about the topic. Every one of us can speak up online for more equality. Every one of us can boycott exploitative companies. All of us who live in democracies can demand pilot programmes for a basic income and push our elected representatives to stand up for progressive taxation, and for wealth taxes in particular. And we can join global initiatives that work against inequality.
+
+I would be glad if you took this text as inspiration, if you discussed it — controversially and respectfully — if you asked questions; in short: if we took responsibility together.
+
+# **Acknowledgements and further reading**
+
+This topic has been consuming me for many years. The impulse came from two directions:
+
+For one, it was the constant denial of one’s own responsibility that I kept meeting in everyday life. From that I derived the oasis parable and developed it further in many conversations with friends and relatives.
+
+For another, the impulse actually came through Richard David Precht’s *History of Philosophy*, which — even though I find his positions problematic in many respects — provided me with a clear sense of direction. In it he mentions Plato’s *Nomoi* and, with them, the 4-to-1 ratio. When I read that, I was floored.
+
+Starting from these two core ideas — personal responsibility and the historically documented possibility of even daring to think about a limit on wealth — I began to sketch and research how one might connect them and argue the whole thing through from beginning to end.
+
+In that research, and as a sparring partner, AI tools also helped me. Without them I would not have made progress so quickly — I work full-time, I also do volunteer work for Volt, and I have a wife and three children.
+
+In the course of this research, I gradually came across thinkers who had already illuminated various aspects of my argument far earlier and far more deeply. Sometimes my reaction was: oh no, someone had the same idea years ago — was my work all for nothing?
+
+But the more I read, the greater my gratitude grew towards these people, some of whom have devoted their lives to this topic. If I’m honest, it feels good to stand in the tradition of cleverer people. And it gives me hope that our shared cause will come to a good end.
+
+Here are some of the people whose work I can recommend to you:
+
+• Plato, [*Laws*](http://www.opera-platonis.de/Nomoi.pdf) – the 4-to-1 ratio that started it all.
+
+• Ingrid Robeyns, [*Limitarianism*](https://www.fischerverlage.de/buch/ingrid-robeyns-limitarismus-9783103971620) – the philosophical case for an upper limit on wealth.
+
+• Sam Pizzigati ([inequality.org](https://inequality.org/great-divide/debate-maximum-wage/)) – has argued for decades for a “maximum wage” tied to the lowest wages; his ideal value is likewise 10 to 1\.
+
+• Richard Wilkinson & Kate Pickett, [*The Spirit Level*](https://wilkinsonpickett.com/the-spirit-level/) – the data on how inequality damages societies.
+
+• Peter Singer, [*The Life You Can Save*](https://www.thelifeyoucansave.org/book/) – the parable of the drowning child and our personal share of responsibility for distant suffering.
+
+• Thomas Piketty, [*Capital in the Twenty-First Century*](https://www.chbeck.de/piketty-kapital-21-jahrhundert/product/34716067) – why capital grows faster than the economy over the long run.
+
+• Emmanuel Saez & Gabriel Zucman, [*The Triumph of Injustice*](https://www.suhrkamp.de/buch/der-triumph-der-ungerechtigkeit-t-9783518471371) – what a fairer tax system could look like.
+
+• Ulrike Herrmann, [*The End of Capitalism*](https://www.kiwi-verlag.de/buch/ulrike-herrmann-das-ende-des-kapitalismus-9783462007015) (Das Ende des Kapitalismus) – growth and the limits of the planet.
+
+• Gary Stevenson, [*Garys Economics*](https://garyseconomics.org/) – how a topic turns into a political movement.
+
+• Martyna Linartas, [*Unverdiente Ungleichheit*](https://www.rowohlt.de/buch/martyna-linartas-unverdiente-ungleichheit-9783498007355) (Unearned Inequality) – how deeply entrenched inequality is, especially in Germany.
+
+• Richard J. Murphy, [*Funding the Future*](https://www.taxresearch.org.uk/Blog/) – a blog with short, clear videos that overturn the everyday assumptions about how money, tax and the economy really work.
+
+• Chris Reiter & Will Wilkes, [*Broken Republik*](https://www.bloomsbury.com/uk/broken-republik-9781526679161/) – an unsparing yet hopeful account of Germany's slide into crisis.
+
+There are surely more people working on the question of inequality and devising solutions. I would be glad if you pointed me to them, so that together we can keep learning and let voices that deserve to be heard ring out more loudly.
+
+Last but not least I want to thank my wife and my children, because they have patiently endured the many hours I have spent on this project, and because they have motivated me to carry on even when things got difficult.
+
